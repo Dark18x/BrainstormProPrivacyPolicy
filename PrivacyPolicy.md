@@ -64,4 +64,4 @@ This policy is effective as of 2023-09-23
 
 **Contact Us**
 
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at barisyilmaz@gmail.com.
+If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at barisyilmazconsole@gmail.com.
